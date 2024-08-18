@@ -7,6 +7,8 @@ SHE/HER
 
 OLD NAMES LIKE REDD ONLY FOR CLOSE FRIENDS
 
+hi do not copy my ponies thanks
+
 =================================================================
 
 B4 INT
