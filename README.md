@@ -64,4 +64,6 @@ creautures of sonaria
 
 kaiju games
 
-war of 02
+war of 02 - my own game!! :3
+
+Dandys World - I do not support the devs or anything. dni fandom
