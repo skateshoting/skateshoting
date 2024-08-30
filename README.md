@@ -12,7 +12,7 @@ hi do not copy my ponies thanks
 
 B4 INT
 
-I am a victim of sa and ra yet i make inappropriate jokes and jestures
+I am a victim of sa and ra yet i make inappropriate jokes and jestures (attemtping to change that in my life.)
 
 I use tonetags to make my stuff sound much better
 
