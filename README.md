@@ -71,5 +71,6 @@ Dandys World  •  I do not support the devs or anything. dni fandom
 =================================================================
 
 
-@pandemonium.z
-@gastrosnap
+@PandemoniumZ-dot
+
+@Gastrosnap
