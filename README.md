@@ -72,6 +72,46 @@ Happy Tree Friends
 
 =================================================================
 
+KINS
+
+Scenty / Amelia - ONE / hfjONE
+
+Hawkfrost - Warrior Cats
+
+Ashfur - Warrior cats
+
+Brokenstar - Warrior cats
+
+Darktail - Warrior cats
+
+Onestar - Warrior cats
+
+Sleekwhisker - Warrior cats
+
+Weni / Weniminigia - War of 02
+
+Rootbeer - Supernova Specialization
+
+Rocket - PHIGHTING!
+
+Sawnoob - The Robloxia: Until Dawn
+
+Finn - Dandys world
+
+Sprout - Dandys world
+
+Cuddles - Happy Tree friends
+
+Petunia - Happy Tree friends
+
+Egobworder - PHIGHTING!
+
+Steampunk - PHIGHTING!
+
+Brandy - Objectified
+
+=================================================================
+
 
 @PandemoniumZ-dot
 
