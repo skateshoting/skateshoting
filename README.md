@@ -1,115 +1,20 @@
-SLING • ROCKET • MED • FINN
+**【 ;; SLING • ROCKET • MED • SPROUT**
+**↳** Older names for closer friends ! (Redd, LuffLuff, etc)
 
-=================================================================
+【 hihi hello!! I go by She/Her or Any except neos for close friends. I am an african american gamer, writer, animator and artist. 
+**🠚 BYI**
+**I am a very hypersexual invividual so I will proceed to make NSFW jokes. If youre uncomfortable please let me know so ill notch it down a bit with them. I make Kys/Kms jokes and I also say slurs that I myself can Reclaim. If youre uncomfortable with that too please tell me**
 
-SHE • HER
+**【 STATUSES**
+**OFFLINE** either dni or whatever. dont use a lot
+**ONLINE** barely use
+**AWAY** barely use
+**BUSY** Will use sometimes if not Looking for chat or Looking for Roleplay
+**LOOKING FOR CHAT** Will also sometimes use
+**LOOKING FOR ROLEPLAY** Current main status for more roleplays! I love roleplaying sm..as long as I dont start them off
 
-OLD NAMES LIKE REDD ONLY FOR CLOSE FRIENDS
+**🠚 DNI**
+**-13, 17+. Weird people, Basic criteria**
 
-hi do not copy my ponies thanks
-
-=================================================================
-
-B4 INT
-
-I am a victim of sa and ra yet i make inappropriate jokes and jestures (attemtping to change that in my life.)
-
-I use tonetags to make my stuff sound much better
-
-if i have dni, srsly dni dude • unless youre a friend
-
-I mainly have 'C&H' in my names but if i dont you can still cuddle ! i dont put them in sometimes cause i either forget or its too long
-
-im sensitive lol
-
-=================================================================
-
-STATUSES
-
-Online • idk. i dont use this much
-
-Looking for chat • im bored!! i need someone to int w!!
-
-Looking for roleplay • dont. use this one a lot. rps mainly for friends
-
-Away • barely use. im either off tab or not
-
-Busy - IN FR HERE!! Or offtab... i use busy a lot
-
-=================================================================
-
-DNI
-
-basic criteria
-
-SA, RA JOKES
-
-DSMP (unless friends)
-
-etc
-
-=================================================================
-
-FANDOMS
-
-one piece
-
-phighting
-
-block tales
-
-pressure • THIN ICE.
-
-creautures of sonaria
-
-kaiju games
-
-war of 02 • my own game!! :3
-
-Dandys World  •  I do not support the devs or anything. dni fandom
-
-Happy Tree Friends
-
-The Robloxia:Until Dawn
-
-=================================================================
-
-KINS
-
-Scenty / Amelia - ONE / hfjONE
-
-Hawkfrost - Warrior Cats
-
-Ashfur - Warrior cats
-
-Brokenstar - Warrior cats
-
-Darktail - Warrior cats
-
-Onestar - Warrior cats
-
-Sleekwhisker - Warrior cats
-
-Weni / Weniminigia - War of 02
-
-Rootbeer - Supernova Specialization
-
-Rocket - PHIGHTING!
-
-Sawnoob - The Robloxia: Until Dawn
-
-Finn - Dandys world
-
-Sprout - Dandys world
-
-Cuddles - Happy Tree friends
-
-Petunia - Happy Tree friends
-
-Egobworder - PHIGHTING!
-
-Steampunk - PHIGHTING!
-
-Brandy - Objectified
-
-=================================================================
+**【 BYI PT.2**
+**I am almost ALWAYS with my friends (@shellyirl , @Gastrosnap , @WYREFRAMES , @swocketing , @decayedparadise , and many more who dont have GitHubs Or I don't know their GH) and if im not with one of them ill be sitting alone. If you sit with me ill allow it but once we start talking ill sound dry and will almost never return to normal while sitting with you. No harsh feelings, I just have no idea how to interact with people I do not know. I will almost always feel uncomfortable if you flirt with me out of nowhere. If you hump/go up and down on or whatever on me then ill feel uncomfortable.
