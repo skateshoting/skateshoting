@@ -1,7 +1,9 @@
 **【 ;; SLING • ROCKET • MED • SPROUT**
+
 **↳** Older names for closer friends ! (Redd, LuffLuff, etc)
 
 【 hihi hello!! I go by She/Her or Any except neos for close friends. I am an african american gamer, writer, animator and artist. 
+
 **🠚 BYI**
 **I am a very hypersexual invividual so I will proceed to make NSFW jokes. If youre uncomfortable please let me know so ill notch it down a bit with them. I make Kys/Kms jokes and I also say slurs that I myself can Reclaim. If youre uncomfortable with that too please tell me**
 
@@ -14,6 +16,7 @@
 **LOOKING FOR ROLEPLAY** Current main status for more roleplays! I love roleplaying sm..as long as I dont start them off
 
 **🠚 DNI**
+
 **-13, 17+. Weird people, Basic criteria**
 
 **【 BYI PT.2**
