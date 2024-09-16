@@ -8,11 +8,17 @@
 **I am a very hypersexual invividual so I will proceed to make NSFW jokes. If youre uncomfortable please let me know so ill notch it down a bit with them. I make Kys/Kms jokes and I also say slurs that I myself can Reclaim. If youre uncomfortable with that too please tell me**
 
 **【 STATUSES**
+
 **OFFLINE** either dni or whatever. dont use a lot
+
 **ONLINE** barely use
+
 **AWAY** barely use
+
 **BUSY** Will use sometimes if not Looking for chat or Looking for Roleplay
+
 **LOOKING FOR CHAT** Will also sometimes use
+
 **LOOKING FOR ROLEPLAY** Current main status for more roleplays! I love roleplaying sm..as long as I dont start them off
 
 **🠚 DNI**
