@@ -28,3 +28,5 @@
 **【 BYI PT.2**
 
 **I am almost ALWAYS with my friends (scythe/cosmo/shelly, nari, dove, katie, 7, Gray, Coil/Scythe, ETC) and if im not with one of them ill be sitting alone. If you sit with me ill allow it but once we start talking ill sound dry and will almost never return to normal while sitting with you. No harsh feelings, I just have no idea how to interact with people I do not know. I will almost always feel uncomfortable if you flirt with me out of nowhere. If you hump/go up and down on or whatever on me then ill feel uncomfortable.**
+
+**If I have a name that sounds like a vent (or have neg) please interact with caution.**
