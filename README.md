@@ -35,6 +35,10 @@
 
 **MEPHONE** Inanimate Insanity
 
+**TACO** Inanimate Insanity
+
+**BRANDY** Objectified
+
 **SLINGSHOT** PHIGHTING!
 
 **DARKTAIL** Warriors (Warrior cats)
