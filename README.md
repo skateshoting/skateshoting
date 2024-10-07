@@ -7,7 +7,7 @@
 **🠚 BYI**
 **I am a very hypersexual invividual so I will proceed to make NSFW jokes. If youre uncomfortable please let me know so ill notch it down a bit with them. I make Kys/Kms jokes and I also say slurs that I myself can Reclaim. If youre uncomfortable with that too please tell me**
 
-**You can find me in the Dandys World, Sprunki, PHIGHTING! , Sonic, or MCYT area!!**
+**You can find me in the Dandys World, PHIGHTING! , Sonic, or MCYT area!!**
 
 **【 STATUSES**
 
