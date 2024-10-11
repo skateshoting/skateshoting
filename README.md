@@ -1,4 +1,4 @@
-![image](https://i.postimg.cc/c4NXXVhS/astro-png-1.png)
+![image](https://i.postimg.cc/BQMHHywN/astro-png-1-1.png)
 
 **【 ;; SLING • ROCKET • MED • SPROUT**
 
