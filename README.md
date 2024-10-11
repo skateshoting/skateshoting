@@ -1,3 +1,5 @@
+![image](https://i.postimg.cc/c4NXXVhS/astro-png-1.png)
+
 **【 ;; SLING • ROCKET • MED • SPROUT**
 
 **↳** Older names for closer friends ! (Redd, LuffLuff, etc)
