@@ -1,1 +1,2 @@
-![til](https://static.wikia.nocookie.net/cookierunkingdom/images/6/68/Wind_archer_gacha_sequence_animation_ready.gif/revision/latest?cb=20240920000918.gif)
+![image](https://static.wikia.nocookie.net/cookierunkingdom/images/d/dc/Wind_archer_gacha_full.png/revision/latest/scale-to-width-down/1000?cb=20240905224438)
+
