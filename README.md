@@ -1,2 +1,1 @@
-![image](https://static.wikia.nocookie.net/cookierunkingdom/images/d/dc/Wind_archer_gacha_full.png/revision/latest/scale-to-width-down/1000?cb=20240905224438)
-
+![image](https://static.wikia.nocookie.net/cookierunkingdom/images/3/35/Cutscene_special_episode01_032.png/revision/latest?cb=20230708074955)
