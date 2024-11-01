@@ -1,3 +1,3 @@
-![image](https://i.postimg.cc/C11f4kqr/i-feel-them-on-my-shoulder-LOL-Uhmm-hey-guys.jpg)
+![image](https://static.miraheze.org/phightingwiki/thumb/2/29/Soda_Sword_Rocket_Slushies.jpg/1148px-Soda_Sword_Rocket_Slushies.jpg?20240317234800)
 
-<sup><sub>art by lemon.chips on instagram</sub></sup>
+<sup><sub>THIS IS LITERALLY ME AND POOB (brawler) EEK!! /P </sub></sup>
