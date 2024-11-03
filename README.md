@@ -1,3 +1,3 @@
-![image](https://static.miraheze.org/phightingwiki/thumb/2/29/Soda_Sword_Rocket_Slushies.jpg/1148px-Soda_Sword_Rocket_Slushies.jpg?20240317234800)
+![image](https://f2.toyhou.se/file/f2-toyhou-se/images/67944684_KU8RliGMnDtJDdp.png)
 
-<sup><sub>THIS IS LITERALLY ME AND POOB (brawler) EEK!! /P </sub></sup>
+<sup><sub>art by hellhunde on toyhou.se , youtube , etc </sub></sup>
