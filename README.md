@@ -1,3 +1,3 @@
-![image](https://f2.toyhou.se/file/f2-toyhou-se/images/67944684_KU8RliGMnDtJDdp.png)
+![image](https://i.postimg.cc/xjZQ425R/67944684-KU8-Rli-GMn-Dt-JDdp.png)
 
 <sup><sub>art by hellhunde on toyhou.se , youtube , etc </sub></sup>
