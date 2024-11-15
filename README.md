@@ -1,3 +1,3 @@
-![image](https://static.wikia.nocookie.net/cookierunkingdom/images/6/63/Immortal_golden_cheese_gacha_full.png/revision/latest/scale-to-width-down/1000?cb=20241030021328)
+![image](https://static.wikia.nocookie.net/battlefordreamisland/images/b/b2/Bandicam_2018-04-28_17-08-10-743.jpg/revision/latest?cb=20180428141443)
 
 <sup><sub>hi</sub></sup>
