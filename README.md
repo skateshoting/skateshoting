@@ -1,3 +1,3 @@
-![image](https://static.wikia.nocookie.net/inanimateinsanity/images/d/d9/II216_72.jpeg/revision/latest/scale-to-width-down/1000?cb=20240908233030)
+![image](https://i.pinimg.com/736x/26/f9/f7/26f9f7c4a85d35d868df2941c1579585.jpg)
 
 <sup><sub>hi!!</sub></sup>
